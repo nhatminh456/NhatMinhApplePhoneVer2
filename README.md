@@ -152,8 +152,8 @@ MIT License - Tự do sử dụng cho mục đích cá nhân và thương mại.
 ## 👨‍💻 Tác Giả
 
 **Nhật Minh Phone**
-- 📧 Email: contact@nhatminhphone.com
-- 📱 Hotline: 0813.000.686
+- 📧 Email: tranminh29012005@gmail.com
+- 📱 Hotline: 0902578541
 
 ## 🙏 Đóng Góp
 
